@@ -10,7 +10,8 @@ Download the full proposal and roadmap diagram to explore:
 ✔ Development plan and roadmap
 ✔ How you can contribute on launching the paltform  and later as a mentor, developer, or advocate
 
-Contact
+Contact:
+
 For further discussions of this proposal, please contact:
 
 Kallamino Alumni Association: +251914136219
