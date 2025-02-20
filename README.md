@@ -16,5 +16,5 @@ Together, we can empower the next generation of Kallamino leaders!
 📥 Download Proposal & Roadmap
 
 📄 Download Full Proposal
-
+Revitalizing KAA through an Online Mentorship Platform.pdf 
 📊 View Roadmap Diagram
