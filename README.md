@@ -12,7 +12,10 @@ Download the full proposal and roadmap diagram to explore:
 
 Contact
 For further discussions of this proposal, please contact:
+
 Kallamino Alumni Association: +251914136219
-WhatsApp: +251911510196 (Teklegiorgis)
+
+Proposal Initiator(Teklegiorgis) WhatsApp: +251911510196 
+
 Your feedback to the proposal is indispensable.  
 Together, we can empower the next generation of Kallamino leaders!
