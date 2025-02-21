@@ -5,9 +5,9 @@ developed collaboratively by volunteer alumni developers and student practtioner
 
 📢 Get Involved!
 
-Download the full proposal and roadmap diagram to explore:
+Download the full proposal and system diagram to explore:
 ✔ Platform features and benefits
-✔ Development plan and roadmap
+✔ System diagram
 ✔ How you can contribute on launching the paltform  and later as a mentor, developer, or advocate
 
 Contact:
